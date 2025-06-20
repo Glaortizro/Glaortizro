@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-:computer: :tree: **Ingeniera Agrícola**
+:computer: :clover: **Ingeniera Agrícola**
 :family: **¡La mamá más felíz del mindo!**
 
 ### Datos de contacto
