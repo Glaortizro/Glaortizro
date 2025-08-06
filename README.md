@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 :computer: :seedling: **Ingeniera Agrícola**
-:family: **¡La mamá más felíz del mindo!**
+:family: **¡La mamá más felíz del mundo!**
 
 ### Datos de contacto
 
